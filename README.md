@@ -9,3 +9,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* Sayid Heykal, [linkedin](www.linkedin.com/in/sayidheykal).
